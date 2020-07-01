@@ -33,3 +33,9 @@
 **Today's Progress**: More E-licks!
  
 #100DaysOfGuitar
+
+## Day 7: 7/1/2020
+
+**Today's Progress**: More E-licks!
+ 
+#100DaysOfGuitar
