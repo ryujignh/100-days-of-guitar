@@ -45,3 +45,21 @@
 **Today's Progress**: More E-licks!
  
 #100DaysOfGuitar
+
+## Day 9: 7/3/2020
+
+**Today's Progress**: Working on Close to you
+ 
+#100DaysOfGuitar
+
+## Day 10: 7/4/2020
+
+**Today's Progress**: Working on Close to you
+ 
+#100DaysOfGuitar
+
+## Day 11: 7/5/2020
+
+**Today's Progress**: Working on Close to you
+ 
+#100DaysOfGuitar
