@@ -69,3 +69,9 @@
 **Today's Progress**: Got Martin LX1E. A pretty cute guitar. Love it. 
  
 #100DaysOfGuitar
+
+## Day 13: 7/7/2020
+
+**Today's Progress**: Working on Close to you.  
+ 
+#100DaysOfGuitar
