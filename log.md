@@ -73,7 +73,7 @@
 ## Day 13: 7/7/2020
 
 **Today's Progress**: Working on Close to you.  
- 
+
 #100DaysOfGuitar
 
 ## Day 14: 7/8/2020
@@ -83,6 +83,18 @@
 #100DaysOfGuitar
 
 ## Day 15: 7/9/2020
+
+**Today's Progress**: Working on Close to you.  
+ 
+#100DaysOfGuitar
+
+## Day 16: 7/10/2020
+
+**Today's Progress**: Working on Close to you.  
+ 
+#100DaysOfGuitar
+
+## Day 17: 7/112020
 
 **Today's Progress**: Working on Close to you.  
  
