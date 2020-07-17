@@ -129,3 +129,9 @@
 **Today's Progress**: Working on Close to you.  
  
 #100DaysOfGuitar
+
+## Day 23: 7/17/2020
+
+**Today's Progress**: Working on Close to you.  
+ 
+#100DaysOfGuitar
