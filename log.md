@@ -183,3 +183,21 @@
 **Today's Progress**: Working on Close to you.  
  
 #100DaysOfGuitar
+
+## Day 32: 7/26/2020
+
+**Today's Progress**: Working on Close to you.  
+ 
+#100DaysOfGuitar
+
+## Day 33: 7/27/2020
+
+**Today's Progress**: Working on Close to you.  
+ 
+#100DaysOfGuitar
+
+## Day 34: 7/28/2020
+
+**Today's Progress**: Working on Close to you.  
+ 
+#100DaysOfGuitar
