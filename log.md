@@ -201,3 +201,9 @@
 **Today's Progress**: Working on Close to you.  
  
 #100DaysOfGuitar
+
+## Day 35: 7/29/2020
+
+**Today's Progress**: Working on Close to you.  
+ 
+#100DaysOfGuitar
