@@ -219,3 +219,9 @@
 **Today's Progress**: Working on Close to you.  
  
 #100DaysOfGuitar
+
+## Day 38: 8/1/2020
+
+**Today's Progress**: Working on Who says  
+ 
+#100DaysOfGuitar
