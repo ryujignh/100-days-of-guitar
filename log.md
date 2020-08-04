@@ -225,3 +225,27 @@
 **Today's Progress**: Working on Who says  
  
 #100DaysOfGuitar
+
+## Day 39: 8/2/2020
+
+**Today's Progress**: Working on Who says  
+ 
+#100DaysOfGuitar
+
+## Day 40: 8/2/2020
+
+**Today's Progress**: Working on Who says  
+ 
+#100DaysOfGuitar
+
+## Day 41: 8/3/2020
+
+**Today's Progress**: Working on Who says  
+ 
+#100DaysOfGuitar
+
+## Day 42: 8/4/2020
+
+**Today's Progress**: Working on Who says  
+ 
+#100DaysOfGuitar
