@@ -255,3 +255,9 @@
 **Today's Progress**: Working on Who says  
  
 #100DaysOfGuitar
+
+## Day 44: 8/6/2020
+
+**Today's Progress**: Working on Who says  
+ 
+#100DaysOfGuitar
