@@ -261,3 +261,21 @@
 **Today's Progress**: Working on Who says  
  
 #100DaysOfGuitar
+
+## Day 45: 8/7/2020
+
+**Today's Progress**: Working on Who says  
+ 
+#100DaysOfGuitar
+
+## Day 46: 8/8/2020
+
+**Today's Progress**: Working on Who says  
+ 
+#100DaysOfGuitar
+
+## Day 47: 8/9/2020
+
+**Today's Progress**: Working on Who says  
+ 
+#100DaysOfGuitar
