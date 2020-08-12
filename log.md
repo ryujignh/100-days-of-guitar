@@ -291,3 +291,9 @@
 **Today's Progress**: Working on Who says  
  
 #100DaysOfGuitar
+
+## Day 50: 8/12/2020
+
+**Today's Progress**: Working on Who says  
+ 
+#100DaysOfGuitar
