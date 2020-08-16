@@ -315,3 +315,9 @@
 **Today's Progress**: Working on Who says  
  
 #100DaysOfGuitar
+
+## Day 54: 8/16/2020
+
+**Today's Progress**: E-blues  
+ 
+#100DaysOfGuitar
