@@ -327,3 +327,15 @@
 **Today's Progress**: E-blues  
  
 #100DaysOfGuitar
+
+## Day 56: 8/18/2020
+
+**Today's Progress**: E-blues  
+ 
+#100DaysOfGuitar
+
+## Day 57: 8/19/2020
+
+**Today's Progress**: E-blues  
+ 
+#100DaysOfGuitar
