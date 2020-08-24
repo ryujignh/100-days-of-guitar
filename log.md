@@ -364,3 +364,9 @@
  
 #100DaysOfGuitar
 
+## Day 62: 8/24/2020
+
+**Today's Progress**: Who says  
+ 
+#100DaysOfGuitar
+
