@@ -406,3 +406,9 @@
  
 #100DaysOfGuitar
 
+## Day 69: 8/31/2020
+
+**Today's Progress**: Stop This Train  
+ 
+#100DaysOfGuitar
+
