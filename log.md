@@ -429,3 +429,9 @@
 **Today's Progress**: Stop This Train  
  
 #100DaysOfGuitar
+
+## Day 73: 9/4/2020
+
+**Today's Progress**: Stop This Train  
+ 
+#100DaysOfGuitar
