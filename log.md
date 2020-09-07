@@ -435,3 +435,22 @@
 **Today's Progress**: Stop This Train  
  
 #100DaysOfGuitar
+
+## Day 74: 9/5/2020
+
+**Today's Progress**: Stop This Train  
+ 
+#100DaysOfGuitar
+
+## Day 75: 9/6/2020
+
+**Today's Progress**: Stop This Train  
+ 
+#100DaysOfGuitar
+
+## Day 76: 9/7/2020
+
+**Today's Progress**: Stop This Train  
+ 
+#100DaysOfGuitar
+
