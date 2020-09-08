@@ -454,3 +454,9 @@
  
 #100DaysOfGuitar
 
+## Day 77: 9/8/2020
+
+**Today's Progress**: Stop This Train  
+ 
+#100DaysOfGuitar
+
