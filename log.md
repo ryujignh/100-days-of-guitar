@@ -472,3 +472,21 @@
  
 #100DaysOfGuitar
 
+## Day 80: 9/11/2020
+
+**Today's Progress**: Stop This Train  
+ 
+#100DaysOfGuitar
+
+## Day 81: 9/12/2020
+
+**Today's Progress**: Stop This Train  
+ 
+#100DaysOfGuitar
+
+## Day 82: 9/13/2020
+
+**Today's Progress**: Stop This Train  
+ 
+#100DaysOfGuitar
+
