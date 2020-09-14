@@ -490,3 +490,9 @@
  
 #100DaysOfGuitar
 
+## Day 83: 9/14/2020
+
+**Today's Progress**: Stop This Train  
+ 
+#100DaysOfGuitar
+
