@@ -556,3 +556,27 @@
  
 #100DaysOfGuitar
 
+## Day 94: 9/25/2020
+
+**Today's Progress**: Stop This Train  
+ 
+#100DaysOfGuitar
+
+## Day 95: 9/26/2020
+
+**Today's Progress**: Stop This Train  
+ 
+#100DaysOfGuitar
+
+## Day 96: 9/27/2020
+
+**Today's Progress**: Stop This Train  
+ 
+#100DaysOfGuitar
+
+## Day 97: 9/28/2020
+
+**Today's Progress**: Stop This Train  
+ 
+#100DaysOfGuitar
+
