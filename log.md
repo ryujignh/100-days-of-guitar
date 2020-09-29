@@ -580,3 +580,9 @@
  
 #100DaysOfGuitar
 
+## Day 98: 9/29/2020
+
+**Today's Progress**: Stop This Train  
+ 
+#100DaysOfGuitar
+
