@@ -640,3 +640,15 @@
  
 #100DaysOfGuitar
 
+## Day 108: 10/9/2020
+
+**Today's Progress**: Stop This Train  
+ 
+#100DaysOfGuitar
+
+## Day 109: 10/10/2020
+
+**Today's Progress**: Stop This Train  
+ 
+#100DaysOfGuitar
+
